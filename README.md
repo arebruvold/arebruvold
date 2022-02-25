@@ -1,6 +1,7 @@
-Hi, I am Are Bruvold 👋
+Hi there!
 
-I’m interested in all things data- & nanoscience, working with nanometrology and sp-ICP-MS.
+
+I’m interested in all things data- & nanoscience, currently working on the the determination of environmental concentrations of particles in the nanorange.
 I can be reached at aresb@hi.no (work) or arebru@gmail.com (private).
 
 
