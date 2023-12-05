@@ -1,5 +1,5 @@
 I’m interested in all things data- & nanoscience, currently working on the the determination of environmental concentrations of particles in the nanorange.
-I can be reached at aresb@hi.no (work) or arebru@gmail.com (private). I appreciate interest in my work - don't hestitate to get in touch.
+I can be reached at aresb@hi.no (work) or arebru@gmail.com (private). I appreciate interest, don't hestitate to get in touch.
 
 web: https://arebruvold.com
 
